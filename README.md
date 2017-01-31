@@ -1,7 +1,7 @@
 # Resources
 If you've been asking yourself lately about how you could help in these trying times, this is a list of (growing) resources where you can give back. As this is public, I am accepting pull requests for suggestions.
 
-Quick note: A lot of this content is pulled from and inspired by a collaboration between three businesses in the Seattle area ([Sugar Pill](http://www.sugarpillseattle.com/), [Substantial](http://substantial.com/), and [Girlie Press](http://www.girliepress.com/)). Website coming soon.
+Quick note: A lot of this content is pulled from and inspired by a collaboration between three small businesses in the Seattle area ([Sugar Pill](http://www.sugarpillseattle.com/), [Substantial](http://substantial.com/), and [Girlie Press](http://www.girliepress.com/)). Website coming soon.
 
 ###Love is a way to fight hatred.
 
