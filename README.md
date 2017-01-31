@@ -20,6 +20,7 @@ Quick note: The majority of this content is pulled from and inspired by a collab
 
 ##Look After Yourself
 [Know your rights and responsibilities as an American Muslim](https://www.cair.com/images/pdf/Know-Your-Rights-Guide.pdf)
+
 [Challenging Islamaphobia pocket guide](https://www.cair.com/images/pdf/Islamophobia-Pocket-Guide.pdf)
 
 #Donate & Learn More
