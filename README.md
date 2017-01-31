@@ -3,17 +3,19 @@ If you've been asking yourself lately about how you could help in these trying t
 
 Quick note: A lot of this content is pulled from and inspired by a collaboration between three local businesses ([Sugar Pill](http://www.sugarpillseattle.com/), [Substantial](http://substantial.com/), and [Girlie Press](http://www.girliepress.com/)) that call Seattle, WA home. Website coming soon.
 
->Love is a way to fight hatred.
+###Love is a way to fight hatred.
 
->Action is a way to fight despair.
+###Action is a way to fight despair.
 
->Take good care of yourself.
+###Take good care of yourself.
 
->Take extra care of those around you.
+###Take extra care of those around you.
 
 #Take Action Now
 [Resistance Manual](https://www.resistancemanual.org/Resistance_Manual_Home)
+
 [Women's March: 10 Actions, 100 Days](https://www.womensmarch.com/100/)
+
 [Matching Donations](http://matchingdonations.us/)
 
 #Donate & Learn More
