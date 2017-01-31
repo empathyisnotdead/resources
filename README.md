@@ -18,6 +18,10 @@ Quick note: The majority of this content is pulled from and inspired by a collab
 
 [Matching Donations](http://matchingdonations.us/)
 
+##Look After Yourself
+[Know your rights and responsibilities as an American Muslim](https://www.cair.com/images/pdf/Know-Your-Rights-Guide.pdf)
+[Challenging Islamaphobia pocket guide](https://www.cair.com/images/pdf/Islamophobia-Pocket-Guide.pdf)
+
 #Donate & Learn More
 
 ##Speak Up
@@ -76,6 +80,8 @@ Quick note: The majority of this content is pulled from and inspired by a collab
 [Committee to Protect Journalists](cpj.org)
 
 [Indigenous Environmental Network](ienearth.org)
+
+[National Immigration Law Center](https://www.nilc.org/)
 
 [Southern Poverty Law Center](splcenter.org)
 
