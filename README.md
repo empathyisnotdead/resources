@@ -43,12 +43,16 @@ Quick note: The majority of this content is pulled from and inspired by a collab
 
 [Campaign Zero](joincampaignzero.org)
 
+[MPower Change](https://www.mpowerchange.org/#new-page)
+
 [Stand with Standing Rock](standwithstandingrock.net)
 
 [togetherlist](togetherlist.com)
 
 ##Respect
 [Council on American Islamic Relations](cair.com)
+
+[Make the Road New York](http://www.maketheroadny.org/) 
 
 [National Association for the Advancement of Colored People](naacp.org)
 
@@ -63,7 +67,11 @@ Quick note: The majority of this content is pulled from and inspired by a collab
 
 [Disability Rights Education and Defense Fund](dredf.org)
 
+[International Rescue Committee](https://www.rescue.org/)
+
 [Lifelong Aids Alliance](llaa.org)
+
+[Mariposas sin Fronteras](https://mariposassinfronteras.org/)
 
 ##Protect
 [350](350.org)
@@ -74,6 +82,8 @@ Quick note: The majority of this content is pulled from and inspired by a collab
 
 [AntiDefamation League](adl.org)
 
+[Black Alliance for Just Immigration](blackalliance.org/)
+
 [Border Angels](borderangels.org)
 
 [Children's Alliance](childrensalliance.org)
@@ -81,6 +91,8 @@ Quick note: The majority of this content is pulled from and inspired by a collab
 [Coalition to Stop Gun Violence](csgv.org)
 
 [Committee to Protect Journalists](cpj.org)
+
+[CUNY Clear](cunyclear.org/)
 
 [Indigenous Environmental Network](ienearth.org)
 
@@ -91,6 +103,8 @@ Quick note: The majority of this content is pulled from and inspired by a collab
 [The League of Women Voters](lwv.org)
 
 [Trans Relief Project](transrelief.com)
+
+[Urban Justice Center](https://www.urbanjustice.org/)
 
 ##Ask
 [Center for Dviersity and the Environment](cdeinspires.org)
@@ -107,6 +121,8 @@ Quick note: The majority of this content is pulled from and inspired by a collab
 
 ##Help
 [Center for the Working Poor](centerfortheworkingpoor.org)
+
+[Families for Freedom](http://familiesforfreedom.org/)
 
 [Taking Action for Flint Water](http://www.michigan.gov/flintwater/)
 
@@ -144,3 +160,28 @@ Quick note: The majority of this content is pulled from and inspired by a collab
 [National Public Radio](http://www.npr.org)
 
 [Public Broadcasting Service](http://www.pbs.org/)
+
+##Contacts
+
+###Attorneys
+
+Ted Colquett, Birmingham, AL - ted@colquettlaw.com, (205) 245-4370
+
+Morgan Petriello, Los Angeles, CA - mpetriello@frandzel.com, (323) 651-2577
+
+Kathy Davy, New York, NY - kathydavy7@gmail.com, (917) 579-3871
+
+Elleni Kalouris, Chicago suburbs, IL - ekalouris@kalourislawfirm.com
+
+###Therapists
+
+Muni Olia, Philadelphia, PA - Child and Adolescent Psychiatrist - munira.olia@nyu.edu
+
+Ruth Durack, MSW, Peoria, IL - Social Worker - ruth.durack@lssi.org
+
+Lauren Fallon, LCSW, IL - Social Worker - lauren.brown04@gmail.com
+
+Jennifer Goldstein, Chicago, IL - Therapist - jennifergoldstein2@gmail.com
+
+Gloria Jetter, LMSW, New York, NY - Social Worker 0 glojetter@gmail.com
+
